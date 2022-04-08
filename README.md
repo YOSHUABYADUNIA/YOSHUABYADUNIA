@@ -2,7 +2,7 @@
 - 👀 I’m interested in the mind of what Jehovah wants
 - 🌱 I’m currently learning the bible
 - 💞️ I’m looking to collaborate on what Jehovah says
-- 📫 How to reach me go to Paradis
+- 📫 How to reach me témoin de Jéhovah
 
 <!---
 YOSHUABYADUNIA/YOSHUABYADUNIA is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
